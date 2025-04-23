@@ -24,3 +24,8 @@
 6. **Incorporar la leche de coco:** Verter la leche de coco, mezclar bien y dejar cocinar a fuego lento durante 15 minutos, hasta que el pollo esté bien cocido y la salsa espese ligeramente.  
 7. **Salpimentar:** Ajustar con sal y pimienta al gusto.  
 8. **Servir:** Acompañar con arroz blanco y decorar con cilantro fresco si se desea.
+
+## ⏲️ Tiempo y porciones
+
+- **Tiempo total:** 35 minutos  
+- **Porciones:** 4 
