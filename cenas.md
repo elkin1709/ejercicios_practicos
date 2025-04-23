@@ -29,3 +29,9 @@
 3. **Preparar el guacamole:** Aplastar los aguacates con un tenedor, mezclar con el tomate, cebolla, jugo de limón y sal.  
 4. **Calentar las tortillas:** En una sartén sin aceite, calentar las tortillas 20-30 segundos por lado.  
 5. **Montar los tacos:** Poner una porción de verduras asadas sobre cada tortilla, añadir guacamole y decorar con cilantro y salsa si se desea.  
+
+
+## ⏲️ Tiempo y porciones
+
+- **Tiempo total:** 30 minutos  
+- **Porciones:** 2-3 personas (6 tacos)
