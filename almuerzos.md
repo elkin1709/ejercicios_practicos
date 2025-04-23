@@ -29,3 +29,10 @@
 
 - **Tiempo total:** 35 minutos  
 - **Porciones:** 4 
+
+## 💡 Consejos o variantes
+
+- Puedes añadir verduras como espinaca, pimientos o zanahoria en tiras para hacerlo más nutritivo.  
+- Si no tienes pasta de curry, puedes usar curry en polvo (2 cucharaditas), aunque el sabor será más suave.  
+- Para una versión vegana, sustituye el pollo por garbanzos o tofu.  
+- Ajusta el nivel de picante según tu gusto: menos pasta de curry si prefieres algo suave.
