@@ -27,3 +27,8 @@
 3. **Cocinar:** En sartén o parrilla caliente, cocinar las hamburguesas 4-5 minutos por lado. Añadir el queso al final para que se derrita.
 4. **Armar los sándwiches:** Tostar ligeramente los panes y montar con los ingredientes que más te gusten.
 5. **Servir:** Acompañar con las papas al horno bien crujientes.
+
+## ⏲️ Tiempo y porciones
+
+- **Tiempo total:** 45 minutos  
+- **Porciones:** 4 hamburguesas con papa
