@@ -20,3 +20,8 @@
 3. **Agregar las verduras:** Añadir la zanahoria rallada y las espinacas. Cocinar hasta que las espinacas se marchiten, unos 2-3 minutos.
 4. **Terminar con limón:** Retirar del fuego y rociar con el jugo de limón.
 5. **Servir:** Decorar con semillas si se desea y servir tibio o a temperatura ambiente.
+
+## ⏲️ Tiempo y porciones
+
+- **Tiempo total:** 20 minutos  
+- **Porciones:** 2-3
