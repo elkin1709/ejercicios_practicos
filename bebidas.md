@@ -21,3 +21,10 @@
 
 - **Tiempo total:** 5 minutos  
 - **Porciones:** 2 vasos
+
+## 💡 Consejos o variantes
+
+- Puedes hacerlo más ligero con más agua o más espeso con menos líquido.  
+- Usa mango congelado para una textura tipo batido.  
+- Añade un toque de agua de rosas para una versión más aromática.  
+- Ideal para combatir el calor o como postre líquido.
