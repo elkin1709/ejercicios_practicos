@@ -25,3 +25,10 @@
 
 - **Tiempo total:** 1 hora 15 minutos  
 - **Porciones:** 4  
+
+## 💡 Consejos o variantes
+
+- Usa queso vegano y yogur vegetal para una versión completamente vegana.  
+- Puedes agregar espinaca, maíz o brócoli al relleno.  
+- Acompaña con una ensalada fresca o salsa de yogur con limón.  
+- Asegúrate de que todos los ingredientes (como crema agria y queso) estén etiquetados como **sin gluten**.
