@@ -20,3 +20,8 @@
 3. **Formar bolitas:** Añadir la harina para unir y formar bolitas o pequeñas hamburguesas.
 4. **Hornear:** Colocar sobre una bandeja con papel vegetal, pincelar con aceite de oliva y hornear 20 minutos, dar vuelta y hornear 10 minutos más hasta dorados.
 5. **Servir:** Como snack con hummus, tahini, o en pan pita con ensalada.
+
+## ⏲️ Tiempo y porciones
+
+- **Tiempo total:** 35-40 minutos (más el remojo previo)
+- **Porciones:** 15-20 fala
