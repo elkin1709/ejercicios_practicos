@@ -32,3 +32,10 @@
 
 - **Tiempo total:** 45 minutos  
 - **Porciones:** 4-5 personas
+
+## 💡 Consejos o variantes
+
+- Puedes añadir alcachofas, calabacín o berenjena para más variedad.  
+- Para más sabor, sustituye parte del caldo con vino blanco seco.  
+- No remuevas una vez añadido el caldo: así se forma el delicioso **socarrat** (la costra dorada en el fondo).  
+- Acompaña con sangría o una limonada casera y viajas directo a Valencia. 🇪🇸
