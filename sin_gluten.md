@@ -20,3 +20,8 @@
 5. **Mezclar:** En un bol, mezclar el relleno de papa con los champiñones, el pimiento, un poco del queso, cebollino y la crema agria (opcional).
 6. **Rellenar y hornear:** Rellenar las papas con esta mezcla, cubrir con más queso y hornear por 10 minutos más o hasta que el queso se derrita.
 7. **Servir:** Espolvorear con más cebollino fresco al servir.
+
+## ⏲️ Tiempo y porciones
+
+- **Tiempo total:** 1 hora 15 minutos  
+- **Porciones:** 4  
