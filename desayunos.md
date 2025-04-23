@@ -21,3 +21,8 @@
 6. **Añade alcaparras** si te gustan, para un toque salado y sabroso.
 7. **Espolvorea un poco de eneldo y pimienta negra.**
 8. **Exprime unas gotas de limón** si deseas darle un toque cítrico.
+
+## 🕒 Tiempo estimado
+- **Preparación:** 10 minutos  
+- **Cocción:** 2 minutos (tostar el bagel)  
+- **Total:** 12 minutos
