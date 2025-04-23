@@ -35,3 +35,9 @@
 
 - **Tiempo total:** 30 minutos  
 - **Porciones:** 2-3 personas (6 tacos)
+
+## 💡 Consejos o variantes
+
+- Añade queso rallado o tofu a la plancha si deseas más proteína.  
+- Puedes usar otras verduras como champiñones, berenjena o elote.  
+- Si tienes tiempo, calienta las tortillas sobre llama directa para un sabor más ahumado.  
