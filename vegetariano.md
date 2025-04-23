@@ -25,3 +25,10 @@
 
 - **Tiempo total:** 20 minutos  
 - **Porciones:** 2-3
+
+## 💡 Consejos o variantes
+
+- Puedes agregar queso feta o tofu salteado para más proteína.  
+- Añade un toque de chile en polvo o pimentón para más sabor.  
+- Si no tienes garbanzos, puedes usar lentejas cocidas o frijoles blancos.  
+- También queda bien como relleno para wraps o tacos vegeta
