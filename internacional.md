@@ -27,3 +27,8 @@
 6. **Caldo:** Añadir el caldo caliente, nivelar el arroz (¡no revolver más!) y dejar cocinar a fuego medio 18-20 minutos hasta que el arroz esté tierno y el líquido absorbido.
 7. **Reposar:** Apagar el fuego, cubrir con un paño limpio y dejar reposar 5 minutos.
 8. **Servir:** Acompañar con gajos de limón.
+
+## ⏲️ Tiempo y porciones
+
+- **Tiempo total:** 45 minutos  
+- **Porciones:** 4-5 personas
