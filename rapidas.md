@@ -32,3 +32,9 @@
 
 - **Tiempo total:** 45 minutos  
 - **Porciones:** 4 hamburguesas con papa
+
+## 💡 Consejos o variantes
+
+- Cambia la carne por lentejas o portobellos para versión veggie.  
+- Agrega bacon, cebolla caramelizada o salsas locas (¡una buena barbacoa nunca falla!).  
+- Las papas también se pueden hacer en air fryer para menos aceite.  
