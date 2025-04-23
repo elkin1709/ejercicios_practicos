@@ -9,3 +9,9 @@
 - 1/4 cucharadita de cardamomo molido (opcional, pero tradicional)
 - Cubos de hielo (opcional)
 - Hojas de menta para decorar (opcional)
+
+## Preparación paso a paso
+
+1. **Pelar y cortar** el mango en cubos (si es fresco).
+2. **Licuar:** En una licuadora, combinar el mango, yogur, agua/leche, azúcar/miel y cardamomo. Licuar hasta obtener una bebida suave y cremosa.
+3. **Servir:** Verter en vasos altos, añadir hielo si se desea y decorar con una hoja de menta o una pizca de cardamomo extra.
