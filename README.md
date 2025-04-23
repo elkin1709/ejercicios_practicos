@@ -7,10 +7,10 @@ Bienvenido a tu recetario digital, lleno de sabores de todo el mundo 🌍. Aquí
 ## 🍳 Desayunos
 - [Bagel con Queso Crema y Salmón Ahumado](./desayunos.md)
 ## 🥗 Almuerzos
-- [Pasta primavera cremosa](./almuerzo.md.md)
+- [Pasta primavera cremosa](./almuerzos.md)
 
 ## 🌮 Cenas
-- [Tacos de verduras asadas con guacamole](./cenas.md.md)
+- [Tacos de verduras asadas con guacamole](./cenas.md)
 
 ## 🍮 Postres
 - [Vasitos de yogur con frutas y granola](./postres.md)
