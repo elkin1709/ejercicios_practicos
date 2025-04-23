@@ -25,3 +25,10 @@
 
 - **Tiempo total:** 35-40 minutos (más el remojo previo)
 - **Porciones:** 15-20 fala
+
+## 💡 Consejos o variantes
+
+- Para una versión frita, fríelos en aceite caliente hasta dorar.  
+- Si no tienes procesador, usa batidora potente y mucha paciencia.  
+- Puedes congelarlos antes o después de hornear para tener snack listo en cualquier momento.  
+- ¡Quedan geniales acompañados con yogurt con limón o tzatziki!
