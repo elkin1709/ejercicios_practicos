@@ -23,3 +23,10 @@
 - **Tiempo total:** 10 minutos  
 - **Porciones:** 2-3 vasitos
 
+
+## 💡 Consejos o variantes
+
+- Usa yogur vegetal (de coco, almendra, soya) para una versión vegana.  
+- Cambia la granola por nueces, avena tostada o galletas trituradas.  
+- Puedes preparar los vasitos con antelación y guardarlos en el refrigerador (sin la granola para que no se humedezca).  
+- Si prefieres un postre más cremoso, mezcla el yogur con un poco de queso crema batido.
