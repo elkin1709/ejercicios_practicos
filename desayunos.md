@@ -26,3 +26,11 @@
 - **Preparación:** 10 minutos  
 - **Cocción:** 2 minutos (tostar el bagel)  
 - **Total:** 12 minutos
+
+## 💡 Consejos y variantes
+
+- Cambia el **queso crema** por uno con hierbas o ajo para más sabor.
+- ¿No comes salmón? Prueba con **aguacate en rebanadas** y tomate seco.
+- Acompáñalo con una **ensalada fresca** o jugo natural.
+- Agrega **huevo pochado** para una versión más completa.
+- Usa **bagel sin gluten** si tienes alguna restricción alimentaria.
