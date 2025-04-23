@@ -16,3 +16,10 @@
 4. **Agregar granola:** Poner una capa de granola por encima de las frutas.
 5. **Repetir:** Hacer otra capa de yogur, frutas y terminar con granola.
 6. **Decorar:** Añadir un chorrito de miel o sirope por encima y decorar con una hojita de menta si se desea.
+
+
+## ⏲️ Tiempo y porciones
+
+- **Tiempo total:** 10 minutos  
+- **Porciones:** 2-3 vasitos
+
